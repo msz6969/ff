@@ -56,8 +56,8 @@ https://ptcc.in/msz678
 https://t.me/msz6969
 
 
-### - [FF介绍PDF]
-(https://github.com/msz6969/ff/blob/main/%E5%A4%A9%E5%A4%A9%E6%83%B3%E4%B8%8A%5B1%5D.pdf)
+### - [FF介绍PDF](https://github.com/msz6969/ff/blob/main/%E5%A4%A9%E5%A4%A9%E6%83%B3%E4%B8%8A%5B1%5D.pdf)
+https://github.com/msz6969/ff/blob/main/%E5%A4%A9%E5%A4%A9%E6%83%B3%E4%B8%8A%5B1%5D.pdf
 
 其他合作交流请留下邮箱地址或者土豆电报号
 #### 为避免打不开图，本文档不放APP截图
